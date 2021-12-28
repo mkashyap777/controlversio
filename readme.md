@@ -1,2 +1,2 @@
 #fitxer...
-hola que tal
+hola que tal migo
